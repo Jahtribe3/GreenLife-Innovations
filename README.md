@@ -1,0 +1,1 @@
+GreenLife Innovations is a pioneer in recycling and eco-friendly product solutions. We produce sustainable products like fabric bags and bamboo straws while promoting a green lifestyle. GreenLife is dedicated to creating a cleaner, greener planet for future generations through innovative and responsible practices.
